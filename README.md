@@ -1,16 +1,13 @@
-### Hi there 👋
+ ### Hi there 👋
+ Rahzinha🍒
+ 777🪬
+ Maktub🦋
+ Sou estudante 2ºano do EM📚
+ Futura estilista ✨ 
+ Amo cacchorro salsicha 💓
+ Gosto de ir na academia ❤️‍🩹
+ adoro Musica de trap (Veigh,YUnk Vino,Tz< Caio Luccas,Matuê,kyan)🎶
+ ![_](https://media1.tenor.com/m/rqEjJz8qsbkAAAAd/matue.gif)
+ 
 
-<!--
-**Rahlemos07/Rahlemos07** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ 
